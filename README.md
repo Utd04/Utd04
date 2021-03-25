@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Utd04
+- 👋 Hi, I’m Utsav Deep.
 - 👀 I’m interested in Quantitative trading.
 
 <!---
